@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ngatia-Max
-- 👀 I’m interested in crypto currency
+- 👀 I’m interested in crypto currency and 🥵
 - 🌱 I’m currently learning automotive engineering
-- 💞️ I’m looking to collaborate on social friends
+- 💞️ I’m looking to collaborate on social friends and crypto knowledge
 - 📫 How to reach me ngatiacharles061@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: I love Mercedes so much😁and petite
